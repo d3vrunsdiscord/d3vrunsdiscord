@@ -14,5 +14,4 @@ once all is good you can be offwith your day, feel free to check out our website
 and our discord server .gg/harmlessss we will be post daily leaks, and paste so ask any questions youd like to know.
 
 
->>.< Im not a skid i swear!!!!
->leave me aloneee... 
+! >.< Im not a skid i swear leave me aloneee... 
